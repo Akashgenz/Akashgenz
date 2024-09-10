@@ -1,4 +1,4 @@
- Hii I'm soldier of genz
+Unaware from reality attached to fantasy
  
 <!---
 Akashgenz/Akashgenz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
